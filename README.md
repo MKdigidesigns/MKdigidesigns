@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MKdigidesigns
+- 👀 I’m interested in digital artwork
+- 🌱 I’m currently learning american sign language
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I and William Shakespear share the same birth month
